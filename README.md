@@ -1,2 +1,2 @@
 # My-dream-
-But and sell 
+Buy and sell 
